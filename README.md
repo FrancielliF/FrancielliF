@@ -7,7 +7,7 @@
 
 - 📫 Você me acha através do e-mail  **franciellisilva11@hotmail.com**
 
-- 📄 Sobre as minhas experiências  [https://www.linkedin.com/in/francielli-ferreira-da-silva-ab08891b8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](https://www.linkedin.com/in/francielli-ferreira- da-silva-ab08891b8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- 📄 Sobre as minhas experiências https://www.linkedin.com/in/francielli-ferreira-da-silva-ab08891b8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 <h3 align="left">Conecte-se comigo:</h3>
 <p align="left">
