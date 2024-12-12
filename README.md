@@ -3,7 +3,7 @@
 
 - 🌱 Atualmente estou aprendendo **Python e Linguagem C**
 
-- 💬 Me pergunte sobre **Excel, Metodologias ageis, Python**
+- 💬 Me pergunte sobre **Excel, Metodologias ageis, Python** (Aprendendo)
 
 - 📫 Você me acha através do e-mail  **franciellisilva11@hotmail.com**
 
